@@ -1,1 +1,1 @@
-# vitamakuup.com
+# vitamakeup.com
